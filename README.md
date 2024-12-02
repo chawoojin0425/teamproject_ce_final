@@ -48,9 +48,11 @@
 
 ![image](https://github.com/user-attachments/assets/27dd138e-121d-41e7-ae4c-77d2d22100ed)
 
-![image](https://github.com/user-attachments/assets/30d57ce1-6527-4cae-8b13록>
+![image](https://github.com/user-attachments/assets/c90ba9b5-0b2c-4fae-99fe-0ae66b67518c)
 
-![image](https://github.com/user-attachments/assets/1d8ba62e-5d7a-4f2c-9c2f-b977b877bc1a)
+
+![image](https://github.com/user-attachments/assets/2855a80c-9756-429e-80d4-3ccf93a4a035)
+
 <블루투스 연결>
 
 
